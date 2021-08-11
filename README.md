@@ -7,4 +7,5 @@ Rongai boys High school was established in 1973 and is owned by the Catholic Dio
 
 
 Phone: +254 720 717760
+
 FB: https://www.facebook.com/RongaiAgriTech
